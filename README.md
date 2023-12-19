@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **sohammhatre369@gmail.com**
 
-- 📄 Know about my experiences [Click here](https://drive.google.com/file/d/1ETWgALm3iS96I4VL7Q7ks2ikGG7JMG3r/view?usp=sharing)
+- 📄 To Know about my experiences [Click here](https://drive.google.com/file/d/1ETWgALm3iS96I4VL7Q7ks2ikGG7JMG3r/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
